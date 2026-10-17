@@ -10,3 +10,6 @@ Intrivia ini sangatlah menarik dikarena di sini kita di ajarkan untuk solid sama
 
 ## Kesan Pesan Cluster 14 Sejauh Ini 
 Di cluster ini aku sangat senang dikarena aku punya teman dekat yang satu cluster.
+
+## Harapan Kuliah 
+Aku harap semoga bisa memenagkan banyak kejuaran dari lomba robotik atau semacamnya. 
